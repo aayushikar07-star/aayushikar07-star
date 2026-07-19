@@ -2,6 +2,6 @@
 
 I am Aayushi, an Engineering student 
 
-- 🔭 Currently working on amazing projects ✨
+- 🔭 Currently working on increasing my knowledge ✨
 - 🌱 Currently learning new things every day 📚
 - ⚡ Fun fact: I love coffee and coding ☕
