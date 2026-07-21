@@ -6,4 +6,4 @@ I am Aayushi, an Engineering student
 - 🌱 Currently learning new things every day 📚
 - ⚡ Fun fact: I love coffee and coding ☕
 
-Let's always hope for the BEST and continue doing with interests that lie within
+Let's always hope for the BEST and continue doing with INTERESTS that lie within
